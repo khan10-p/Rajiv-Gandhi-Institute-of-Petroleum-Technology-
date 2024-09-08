@@ -1,1 +1,1 @@
-\textbf{Developed a strong understanding of seismic data acquisition and interpretation}, with hands-on experience in \textbf{geophysical methods} relevant to the \textbf{oil and gas exploration industry
+Developed a strong understanding of seismic data acquisition and interpretation, with hands-on experience in geophysical methods relevant to the oil and gas exploration industry
